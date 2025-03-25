@@ -38,6 +38,8 @@ The **Insights into Retail Dynamics** project aims to provide actionable insight
 
 **LinkedIn Profile:** www.linkedin.com/in/zeinabelrashied
 
+**BI Portfolio:** https://www.novypro.com/profile_about/zeinab-mohammed
+
 **Email:** [zeinabalrashiedhassan@gmail.com]
 
 Feel free to connect for further discussions or collaborations.
